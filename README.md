@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on React.Js
 - 📫 How to reach me https://t.me/Elshodbek_T
 
-[PORTFOLIO](https://t.me/anonymouseyy)
+[PORTFOLIO](https://t.me/freelancer_oop)
